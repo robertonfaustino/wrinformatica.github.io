@@ -1,1 +1,0 @@
-# wrinformatica.github.io
